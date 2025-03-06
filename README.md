@@ -56,7 +56,7 @@ https://americancoalitionforukraine.org
 
 Official Ukrainian Government donation website: https://u24.gov.ua/
 
-#Florida Special Elections
+## Florida Special Elections
 
 Let's try to tilt the balance in the House in our favor: Search Mobilize.us for "Gay Valimont" and "Josh Weil"
 
@@ -93,7 +93,13 @@ United Farmworkers (union) is supporting displaced migrants. https://www.ufw.org
 
 Immigrant Groups: The Ayni Institute trains organizers: https://ayni.institute/
 
-#General Strike 
+## Save USPS
+
+On Sunday, March 23, NALC branches are hosting local rallies to say "Hell no!" to dismantling the Postal Service. With branches holding events nationwide on the same day, we are sending a clear, unified message: Hands off USPS!
+
+https://www.nalc.org/news/fight-like-hell
+
+## General Strike 
 
 https://generalstrikeus.com/ 
 
