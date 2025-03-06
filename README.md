@@ -120,3 +120,7 @@ We need progressives, people who refuse to be bought to run for office. We can c
 But it needs to happen right now. And it starts with someone like you running. Run for school board, City council, local, state, federal offices. whatever. Here’s a guide on how.
 
 https://runforsomething.net/run/ 
+
+# This File
+
+https://github.com/AgentFlounder/TakeAction/blob/main/README.md
