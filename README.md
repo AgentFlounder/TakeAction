@@ -4,6 +4,8 @@ What can we do to get more people to protest? (And resist?)
 
 I find that having concrete steps I can take to volunteer makes it more likely I will take action and doing so, I feel empowered and energized instead of overwhelmed. I'm not powerless or alone and neither are you.
 
+This excellent guide is well worth taking the time to read: [INDIVISIBLE: A PRACTICAL GUIDE TO DEMOCRACY ON THE BRINK](https://indivisible.org/resource/guide)
+
 ## Grow our numbers
 
 Step 1. Talk to a friend, keep each other informed. 
