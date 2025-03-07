@@ -18,9 +18,7 @@ Step 4. Go to step 1
 
 Geometric growth folks. If 5 people tell 5 people who each tell 5 people and so on you get a hundred thousand pretty fast.
 
-That said not everyone is going to jump at the chance to join us. Stay strong and try to hold onto optimism. Or DM me if you need a boost. :) 
-
-The people who know what's at stake will *jump* at the chance to do something. That was the case for two of my friends so far.
+That said not everyone is going to jump at the chance to join us. Stay strong and hold onto your optimism. The people that know what's at stake will be eager to help.
 
 Also you can spread the word by passing out these Remove Reverse Reclaim fliers: https://www.reddit.com/u/Streszhouna/s/385My09V1H
 
