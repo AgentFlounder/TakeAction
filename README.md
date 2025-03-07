@@ -135,11 +135,11 @@ Excellent curated list of actions you can take: https://doc.clickup.com/90135761
 Understand how Ukraine defeated a Russian Puppet Dictator:
 https://www.opensocietyfoundations.org/explainers/understanding-ukraines-euromaidan-protests 
 
-We need progressives, people who refuse to be bought to run for office. We can change American politics but it is a long game of 30-50 years. 
+We need progressives, people who refuse to be bought to run for office. I believe we can change the face of American politics but it is a long game of 30-50 years.
 
-But it needs to happen right now. And it starts with someone like you running. Run for school board, City council, local, state, federal offices. whatever. Here’s a guide on how.
+But it needs to start right now. And it starts with someone like you, fellow Redditor, running. Run for school board, City council, local, state, federal offices. whatever. Here’s a guide on how.
 
-https://runforsomething.net/run/ 
+https://runforsomething.net/run/
 
 # This File
 
