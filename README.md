@@ -22,6 +22,8 @@ That said not everyone is going to jump at the chance to join us. Stay strong an
 
 The people who know what's at stake will *jump* at the chance to do something. That was the case for two of my friends so far.
 
+Also you can spread the word by passing out these Remove Reverse Reclaim fliers: https://www.reddit.com/u/Streszhouna/s/385My09V1H
+
 ## More ways to resist 
 
 Look for tasks to volunteer for at https://mobilize.us 
