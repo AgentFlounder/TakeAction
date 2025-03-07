@@ -111,7 +111,8 @@ Join the #JustStop movement! Every day at 2 PM local time, stop everything-no ta
 
 ## Economic Boycott. 
 
-https://www.reddit.com/r/50501/s/H3yqkaTB1M
+Boycott various huge companies - schedule and details here: 
+https://www.reddit.com/r/Anticonsumption/s/2nZkQYNe0O
 
 https://www.reddit.com/r/50501/comments/1ish15s/solidarity_stars_protest_218228_to_gain_momentum/ 
 
