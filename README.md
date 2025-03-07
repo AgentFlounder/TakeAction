@@ -105,6 +105,10 @@ https://generalstrikeus.com/
 
 Petition for Trump's new EO that threatens independence of agencies. https://resist.bot/petitions/PGFEDO  
 
+## JustStop Movement
+
+Join the #JustStop movement! Every day at 2 PM local time, stop everything-no talking, walking, working, scrolling, or spending-for 10 minutes. https://www.reddit.com/r/50501/s/fi9eKF2jbR
+
 ## Economic Boycott. 
 
 https://www.reddit.com/r/50501/s/H3yqkaTB1M
