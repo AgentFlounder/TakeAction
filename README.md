@@ -22,15 +22,15 @@ That said not everyone is going to jump at the chance to join us. Stay strong an
 
 Also you can spread the word by passing out these Remove Reverse Reclaim fliers: https://www.reddit.com/u/Streszhouna/s/385My09V1H
 
-## More ways to resist 
-
-Look for tasks to volunteer for at https://mobilize.us 
+## Contact your elected officials
 
 Contact your representatives using https://5calls.org  (phone) and https://resist.bot   (email, fax, letter)
 
 Contact the White House. White House Comments line – (202) 456-1111 White House Switchboard – (202) 456-1414
 
-https://indivisible.org/resource/guide  
+## Volunteer, protest, and connect
+
+Look for tasks to volunteer for at https://mobilize.us 
 
 Try to meet folks IRL if you can, to deepen the connections & support. You can search for local groups protesting or supporting your top issues.
 
