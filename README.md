@@ -20,7 +20,10 @@ Geometric growth folks. If 5 people tell 5 people who each tell 5 people and so 
 
 That said not everyone is going to jump at the chance to join us. Stay strong and hold onto your optimism. The people that know what's at stake will be eager to help.
 
-Also you can spread the word by passing out these Remove Reverse Reclaim fliers: https://www.reddit.com/u/Streszhouna/s/385My09V1H
+# Remove Reverse Reclaim
+
+You can also spread the word by passing out these Remove Reverse Reclaim fliers:
+ https://www.reddit.com/u/Streszhouna/s/385My09V1H
 
 ## Contact your elected officials
 
