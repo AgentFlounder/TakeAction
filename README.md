@@ -175,6 +175,8 @@ Recommended by some but no clue if they're worth it or not. Please don't yell at
 
 * Fascism: A Quick Immersion, Roger Griffin
 
+* Fascism: Roger Griffin
+
 * More recommendations here: https://www.reddit.com/r/suggestmeabook/s/OCpkBJj5mp
 
 ## Notes
