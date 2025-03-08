@@ -35,7 +35,7 @@ Contact the White House. White House Comments line – (202) 456-1111 White Hous
 
 Look for tasks to volunteer for at https://mobilize.us 
 
-Try to meet folks IRL if you can, to deepen the connections & support. You can search for local groups protesting or supporting your top issues.
+Try to meet folks IRL if you can, to make connections & expand support for each other. You can search for local groups protesting or supporting your top issues.
 
 Look up your local chapter of Indivisible and other resistance organizations. https://indivisible.org/
 
@@ -44,6 +44,8 @@ Find protests at https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ (/r/Prot
 Reddit March on DC subreddit: https://www.reddit.com/r/marchondc/s/b8mqeE9yZ3
 
 Truth Tuesdays (Rise and Resist) - organization is targeting Fox “News” and has resources to help you plan a protest. https://www.truthtuesdays.org/ 
+
+Be sure to spread pics of the protests on social media to increase awareness and inspire people BUT first edit pics and block out faces, tattoos, and other identifying features for security ([as recommended by EFF's protest guide ](https://ssd.eff.org/module/attending-protest)). Media coverage has been limited and many people don't realize we are even protesting.
 
 ## Ukraine 
 
