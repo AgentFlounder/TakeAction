@@ -61,7 +61,10 @@ Write your senators to support Senate Bill 696 that would battle Trump revoking 
 
 [https://www.congress.gov/bill/119th-congress/senate-bill/696](https://www.congress.gov/bill/119th-congress/senate-bill/696)
 
-Ukraine charities https://reddit.com/r/ukraine/w/charities 
+Ukraine charities:
+ https://reddit.com/r/ukraine/w/charities 
+
+https://www.reddit.com/r/ActionForUkraine/s/RPzrNnHgSn
 
 American Coalition for Ukraine - check their website for calls to action, calling representatives, how to donate, summits you can attend, protests, and another actions.
 
