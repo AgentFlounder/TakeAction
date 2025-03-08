@@ -94,6 +94,12 @@ https://volunteerblue.org/calendar/postcards-for-wi-supreme-court-special-electi
 
 https://volunteerblue.org/series/2025-wisconsin-supreme-court-special-election-mail-postcards-for-susan-crawford/ 
 
+## New York
+
+Blake Gendebien is running for a seat in the U.S. House of Representatives to replace Elise Stefanik in a special election.
+
+https://blakegendebienforcongress.com/
+
 ## Immigration
 
 It is important for immigrants and citizens to know their rights regarding immigration. ICE has been shown to abuse their power.
