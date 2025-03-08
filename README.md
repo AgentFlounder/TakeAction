@@ -45,7 +45,9 @@ Reddit March on DC subreddit: https://www.reddit.com/r/marchondc/s/b8mqeE9yZ3
 
 Truth Tuesdays (Rise and Resist) - organization is targeting Fox “News” and has resources to help you plan a protest. https://www.truthtuesdays.org/ 
 
-Be sure to spread pics of the protests on social media to increase awareness and inspire people BUT first edit pics and block out faces, tattoos, and other identifying features for security ([as recommended by EFF's protest guide ](https://ssd.eff.org/module/attending-protest)). Media coverage has been limited and many people don't realize we are even protesting.
+Media coverage of protests has been limited and many people don't realize we are even protesting.
+
+Be sure to spread pics of the protests on social media to increase awareness and inspire people BUT first edit pics and block out faces, tattoos, and other identifying features for security ([as recommended by EFF's protest guide ](https://ssd.eff.org/module/attending-protest)). Pictures of protesters or bystanders’ faces are identifiable and can he used by law enforcement or vigilantes.
 
 ## Ukraine 
 
