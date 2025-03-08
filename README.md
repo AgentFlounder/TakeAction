@@ -20,7 +20,7 @@ Geometric growth folks. If 5 people tell 5 people who each tell 5 people and so 
 
 That said not everyone is going to jump at the chance to join us. Stay strong and hold onto your optimism. The people that know what's at stake will be eager to help.
 
-# Remove Reverse Reclaim
+## Remove Reverse Reclaim
 
 You can also spread the word by passing out these Remove Reverse Reclaim fliers:
  https://www.reddit.com/u/Streszhouna/s/385My09V1H
@@ -151,6 +151,40 @@ But it needs to start right now. And it starts with someone like you, fellow Red
 
 https://runforsomething.net/run/
 
-# This File
+## Read and learn
+
+Unplugging from doom scrolling is a good idea and expanding your mind with books is always good.
+
+Here are some books I have read, or have been recommended to me:
+
+* On Tyranny, Timothy Snyder. Quick read with 20 lessons to fight tyranny from the 20th century. I can't recommend this enough.
+
+* [Ur-Fascism, Umberto Eco](https://theanarchistlibrary.org/library/umberto-eco-ur-fascism) - actually more of an essay including the 14 characteristics of Fascism.
+
+Often Recommended but I haven't read them yet.
+
+* Surviving Autocracy, Masha Gessen (next on my reading list)
+
+* It Can't Happen Here, Sinclair Lewis. I see this recommended very often.
+
+Recommended by some but no clue if they're worth it or not. Please don't yell at me if they suck :)
+
+* Origins of Totalitarianism, Hannah Arendt. Cited often by Snyder but that's all I know.
+
+* Anatomy of Fascism, Robert Paxton
+
+* Fascism, Roger Griffin
+
+* More recommendations here: https://www.reddit.com/r/suggestmeabook/s/OCpkBJj5mp
+
+## Notes
+
+I am attempting to keep this maintained and usually end up editing it dozens of times a week to add new info, delete old, improve writing.
+
+Please share far and wide.
+
+Input, ideas, and feedback welcome.
+
+## This File
 
 https://github.com/AgentFlounder/TakeAction/blob/main/README.md
