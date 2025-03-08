@@ -55,6 +55,10 @@ Electronic Frontier Foundation Guide: https://ssd.eff.org/module/attending-prote
 
 For safety / security block out pics of faces and uniquely identifying features (see [EFF guide above](https://ssd.eff.org/module/attending-protest)), but share protest pics to increase awareness and inspire people since media coverage has been limited.
 
+50501: https://fiftyfifty.one
+
+50501 on Reddit:  https://www.reddit.com/r/50501
+
 ## Ukraine 
 
 Write your senators to support Senate Bill 696 that would battle Trump revoking Ukrainians' immigrant status by making Ukrainians eligible to stay until war is officially over:
@@ -139,6 +143,7 @@ https://www.reddit.com/r/Anticonsumption/s/2nZkQYNe0O
 https://www.reddit.com/r/50501/comments/1ish15s/solidarity_stars_protest_218228_to_gain_momentum/ 
 
 ## Organize
+
 Organizing a Protest:.I have never done it. I would start with looking for experienced local groups first. If for some reason there aren't any, I guess this guide could help: https://commonslibrary.org/organising-your-first-protest/ 
 
 Start a mutual aid network https://afsc.org/news/how-create-mutual-aid-network 
