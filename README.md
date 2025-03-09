@@ -177,8 +177,6 @@ Here are some books I have read, or have been recommended to me:
 
 Often Recommended but I haven't read them yet.
 
-* Surviving Autocracy, Masha Gessen (next on my reading list)
-
 * It Can't Happen Here, Sinclair Lewis. I see this recommended very often.
 
 Recommended by some but no clue if they're worth it or not. Please don't yell at me if they suck :)
@@ -190,6 +188,10 @@ Recommended by some but no clue if they're worth it or not. Please don't yell at
 * Fascism: A Quick Immersion, Roger Griffin
 
 * Fascism: Roger Griffin
+
+* Why Civil Resistance Works, Erica Chenoweth
+
+* Civil Resistance, What Everyone Needs To Know, Erica Chenoweth 
 
 * More recommendations here: https://www.reddit.com/r/suggestmeabook/s/OCpkBJj5mp
 
