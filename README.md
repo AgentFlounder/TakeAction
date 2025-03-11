@@ -144,6 +144,8 @@ https://www.reddit.com/r/Anticonsumption/s/2nZkQYNe0O
 
 https://www.reddit.com/r/50501/comments/1ish15s/solidarity_stars_protest_218228_to_gain_momentum/ 
 
+Feel free to boycott x.com and Tesla. Also many orgs are locally protesting outside of Tesla dealerships.
+
 ## Organize
 
 Organizing a Protest:.I have never done it. I would start with looking for experienced local groups first. If for some reason there aren't any, I guess this guide could help: https://commonslibrary.org/organising-your-first-protest/ 
