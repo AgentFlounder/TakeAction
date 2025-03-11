@@ -31,6 +31,8 @@ Contact your representatives using https://5calls.org  (phone) and https://resis
 
 Contact the White House. White House Comments line – (202) 456-1111 White House Switchboard – (202) 456-1414
 
+An excellent in-depth guide to calling representatives: https://github.com/RaiseRuntimeError/call-to-action
+
 ## Volunteer, protest, and connect
 
 Look for tasks to volunteer for at https://mobilize.us 
