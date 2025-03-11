@@ -139,12 +139,16 @@ Join the #JustStop movement! Every day at 2 PM local time, stop everything-no ta
 
 ## Economic Boycott. 
 
+Ongoing economic boycott - https://www.reddit.com/r/ProtestFinderUSA/s/4LrmQMsRcU
+
 Boycott various huge companies - schedule and details here: 
 https://www.reddit.com/r/Anticonsumption/s/2nZkQYNe0O
 
 https://www.reddit.com/r/50501/comments/1ish15s/solidarity_stars_protest_218228_to_gain_momentum/ 
 
-Feel free to boycott x.com and Tesla. Also many orgs are locally protesting outside of Tesla dealerships.
+X (Twitter) boycott. Don't use the platform. Delete your account if you have one, don't follow links.
+
+Tesla Boycott. Many local orgs are  protesting outside of Tesla dealerships.
 
 ## Organize
 
