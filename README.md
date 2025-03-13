@@ -109,6 +109,23 @@ Blake Gendebien is running for a seat in the U.S. House of Representatives to re
 
 https://blakegendebienforcongress.com/
 
+## LGBTQ+ 
+
+The Trevor Project is awesome: https://www.thetrevorproject.org/
+
+Also consider helping:
+
+* Transgender Law Center, 
+* [A4TE](https://transequality.org/)  (advocates For Trans Equality) 
+* [GLBTQ Legal Advocates & Defenders](https://www.glad.org/) (GLAD Law), 
+* [NCLR](https://www.nclrights.org/) (National Center for Lesbian Rights), and 
+* [Lambda Legal](https://lambdalegal.org/). 
+
+Each state usually also has an equality org like Equality California and One Colorado.
+
+Be an ally. Wear LGBTQ ally gear IF IT’S SAFE TO. Be safe, first and foremost. Buy from LGBTQ artists and businesses, especially books that are being banned. ESPECIALLY trans. 
+
+
 ## Immigration
 
 It is important for immigrants and citizens to know their rights regarding immigration. ICE has been shown to abuse their power.
