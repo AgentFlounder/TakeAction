@@ -45,6 +45,8 @@ Find protests at https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ (/r/Prot
 
 Reddit March on DC subreddit: https://www.reddit.com/r/marchondc/s/b8mqeE9yZ3
 
+Massive 50501 Protest, July 4, Washington DC
+
 Truth Tuesdays (Rise and Resist) - organization is targeting Fox “News” and has resources to help you plan a protest. https://www.truthtuesdays.org/ 
 
 Protest safety/security/tips:
