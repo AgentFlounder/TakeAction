@@ -200,6 +200,8 @@ Here are some books I have read, or have been recommended to me:
 
 * [Ur-Fascism, Umberto Eco](https://theanarchistlibrary.org/library/umberto-eco-ur-fascism) - actually more of an essay including the 14 characteristics of Fascism.
 
+* [The Ten Stages of Genocide](https://www.genocidewatch.com/tenstages)
+
 Often Recommended but I haven't read them yet.
 
 * It Can't Happen Here, Sinclair Lewis. I see this recommended very often.
