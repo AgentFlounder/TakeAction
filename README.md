@@ -6,6 +6,8 @@ I find that having concrete steps I can take to volunteer makes it more likely I
 
 This excellent strategy guide for regular people like you and me is well worth the 20-30 minutes to read it: [INDIVISIBLE: A PRACTICAL GUIDE TO DEMOCRACY ON THE BRINK](https://indivisible.org/resource/guide)
 
+This is a simple list of things you can do: [What Can You Do Now?](https://whatyoucandonow.org/)
+
 ## Grow our numbers
 
 Step 1. Talk to a friend, keep each other informed. 
@@ -27,7 +29,12 @@ You can also spread the word by passing out these Remove Reverse Reclaim fliers:
 
 ## Contact your elected officials
 
-Contact your representatives using https://5calls.org  (phone) and https://resist.bot   (email, fax, letter)
+Phone calls are still the [most effective means](https://5calls.org/why-calling-works/) of contacting your representatives. Provide your name and address and staffers will tally your call or voicemail right away.
+
+Contact your representatives using:
+
+* https://5calls.org (phone) -  provides scripts if you're not sure what to say. 
+* https://resist.bot (email, fax, letter) you type your message via SMS, Messenger, Insta, etc.
 
 Contact the White House. White House Comments line – (202) 456-1111 White House Switchboard – (202) 456-1414
 
