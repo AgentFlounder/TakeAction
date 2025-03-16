@@ -44,15 +44,22 @@ An excellent in-depth guide to calling representatives: https://github.com/Raise
 
 Look for tasks to volunteer for at https://mobilize.us 
 
-Try to meet folks IRL if you can, to make connections & expand support for each other. You can search for local groups protesting or supporting your top issues.
+50501: https://fiftyfifty.one
+
+50501 on Reddit:  https://www.reddit.com/r/50501
 
 Look up your local chapter of Indivisible and other resistance organizations. https://indivisible.org/
 
-Find protests:  [Reddit /r/ProtestFinderUSA](https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ) or https://theblop.org/
+Find protests:
+
+* [Reddit /r/ProtestFinderUSA](https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ)
+* https://theblop.org/
 
 Truth Tuesdays (Rise and Resist) - organization is targeting Fox “News” and has resources to help you plan a protest. https://www.truthtuesdays.org/ 
 
-Protest safety/security/tips:
+Try to meet folks IRL if you can, to make connections & expand support for each other. You can search for local groups protesting or supporting your top issues.
+
+### Protest safety/security/tips:
 
 ACLU: know your rights: https://www.aclu.org/know-your-rights/protesters-rights
 
@@ -61,10 +68,6 @@ NYU Law School Tips: https://www.law.nyu.edu/centers/race-inequality-law/protest
 Electronic Frontier Foundation Guide: https://ssd.eff.org/module/attending-protest 
 
 For safety / security block out pics of faces and uniquely identifying features (see [EFF guide above](https://ssd.eff.org/module/attending-protest)), but share protest pics to increase awareness and inspire people since media coverage has been limited.
-
-50501: https://fiftyfifty.one
-
-50501 on Reddit:  https://www.reddit.com/r/50501
 
 ## Ukraine 
 
