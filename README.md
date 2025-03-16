@@ -50,8 +50,6 @@ Look up your local chapter of Indivisible and other resistance organizations. ht
 
 Find protests:  [Reddit /r/ProtestFinderUSA](https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ) or https://theblop.org/
 
-Reddit March on DC subreddit: https://www.reddit.com/r/marchondc/s/b8mqeE9yZ3
-
 Truth Tuesdays (Rise and Resist) - organization is targeting Fox “News” and has resources to help you plan a protest. https://www.truthtuesdays.org/ 
 
 Protest safety/security/tips:
