@@ -48,7 +48,7 @@ Try to meet folks IRL if you can, to make connections & expand support for each 
 
 Look up your local chapter of Indivisible and other resistance organizations. https://indivisible.org/
 
-Find protests at https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ (/r/ProtestFinderUSA) or https://theblop.org/
+Find protests:  [Reddit /r/ProtestFinderUSA](https://www.reddit.com/r/ProtestFinderUSA/s/9UIs8QGuEZ) or https://theblop.org/
 
 Reddit March on DC subreddit: https://www.reddit.com/r/marchondc/s/b8mqeE9yZ3
 
