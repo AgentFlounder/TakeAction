@@ -24,6 +24,8 @@ That said not everyone is going to jump at the chance to join us. Stay strong an
 
 ## Remove Reverse Reclaim
 
+(or Remove Reverse Restore)
+
 You can also spread the word by passing out these Remove Reverse Reclaim fliers:
  https://www.reddit.com/u/Streszhouna/s/385My09V1H
 
@@ -177,7 +179,7 @@ Tesla Boycott. Many local orgs are  protesting outside of Tesla dealerships.
 
 ## Organize
 
-Organizing a Protest:.I have never done it. I would start with looking for experienced local groups first. If for some reason there aren't any, I guess this guide could help: https://commonslibrary.org/organising-your-first-protest/ 
+Organizing a Protest: I have never done it. I would start with looking for experienced local groups first. If for some reason there aren't any, I guess this guide could help: https://commonslibrary.org/organising-your-first-protest/ 
 
 Start a mutual aid network https://afsc.org/news/how-create-mutual-aid-network 
 
@@ -188,6 +190,8 @@ Excellent guide to building a movement from a trained organizer on Reddit -
 https://docs.google.com/spreadsheets/d/1IbI2KEaN09j1WIsEMWQqBfbWJv0jPN04WteFX6H79Eg/edit?usp=sharing
 
 Excellent curated list of actions you can take: https://doc.clickup.com/9013576179/d/h/8cm0gfk-113/6ef629b0c5ea4e9/8cm0gfk-2193  
+
+[Some Actions That Are Not Protesting or Voting](https://docs.google.com/document/d/1OSWxykA1WHOi0vTPLAJDaCeVhR3uSfh7PhlCj4t4yT0/edit?usp=drivesdk) covering mutual aid, advocacy, justice, and more. 
 
 Understand how Ukraine defeated a Russian Puppet Dictator:
 https://www.opensocietyfoundations.org/explainers/understanding-ukraines-euromaidan-protests 
