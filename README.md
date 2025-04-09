@@ -88,37 +88,6 @@ https://americancoalitionforukraine.org
 
 Official Ukrainian Government donation website: https://u24.gov.ua/
 
-## Florida Special Elections
-
-Let's try to tilt the balance in the House in our favor: Search Mobilize.us for "Gay Valimont" and "Josh Weil"
-
-Volunteer opportunities for Gay Valimont
-https://www.mobilize.us/gayforcongress/ 
-
-Josh Weil postcarding
-
-https://www.mobilize.us/mobilize/event/754042/ 
-
-https://volunteerblue.org/postcarding/
-
-VoteRiders letter writing to inform voters of new Voter ID laws and how to get help. The organization also actively helps people obtain IDs including paying fees if they cannot. One of their campaigns is for Florida and there is also a Wisconsin  campaign
-
-https://www.voteriders.org/letterinfo/?swcfpc=1  Follow the DIY Letter-Writing guide and use the info on the page for writing letters.
-
-## WI Supreme Court election
-
-One seat is up for election on the WI Supreme Court. Republicans have been packing the courts so we need to turn this around. WI is a battleground right now.
-
-https://volunteerblue.org/calendar/postcards-for-wi-supreme-court-special-election/ 
-
-https://volunteerblue.org/series/2025-wisconsin-supreme-court-special-election-mail-postcards-for-susan-crawford/ 
-
-## New York
-
-Blake Gendebien is running for a seat in the U.S. House of Representatives to replace Elise Stefanik in a special election.
-
-https://blakegendebienforcongress.com/
-
 ## LGBTQ+ 
 
 The Trevor Project is awesome: https://www.thetrevorproject.org/
